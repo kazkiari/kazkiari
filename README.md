@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-I'm a software engineer.
+I'm a student.
